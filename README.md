@@ -5,8 +5,8 @@
 
 
 
+![Captura de tela 2025-02-14 192743](https://github.com/user-attachments/assets/2f932304-cb7d-48a6-ab12-221a6e327e13)
 
-![Captura de tela 2025-02-04 223315](https://github.com/user-attachments/assets/913ae887-1a66-4c14-a546-c2afabbecccf)
 
 
 
